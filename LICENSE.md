@@ -1,4 +1,4 @@
-# 
+# Ultimate mean reversion trading bot plugins for Mac OS | Professional mean reversion trading bot plugins for PC Windows. Featuring dex liquidity pools and futures trading — optimized for maximum performance.
 
 
 
